@@ -1,1 +1,0 @@
-# gsell_partner
